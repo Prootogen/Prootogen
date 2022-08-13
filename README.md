@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Prootogen
+- 👀 I’m interested in: Minecraft, Roblox and coding!
+- 🌱 I’m currently learning: Python / other coding.
+-
+- 📫 How to reach me: Discord is: Nissanmicra123457#5113 | Email: brachioplayz@gmail.com (contact unless important)
